@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @davidrmro
+- 👀 I’m interested in penetration testing and analysis
+- 🌱 I’m currently attending Rutger Cybersecurity Bootcamp
+- 📫 How to reach me Email: mroczekrdavid@gmail.com 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I used to be a semi-professional Rocket League Player 
